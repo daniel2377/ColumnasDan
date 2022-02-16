@@ -1,2 +1,0 @@
-# ColumnasDan
-THX
